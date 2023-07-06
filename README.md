@@ -1,1 +1,1 @@
-Engineering student with interesting in Python, Microsoft Excel, C and blockchain ecossystems.
+Engineering student with interesting in Python, BI, data analytics ecossystem.
